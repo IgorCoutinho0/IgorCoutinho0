@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudante de Ciência da Computação, focado no processo para garantir um futuro próspero.
+Estudante de Ciência da Computação, focado no processo para garantir um futuro próspero na área, sou extremamente curioso e oque não me falta é vontade de conquistar todos os meus objetivos.
 
 
 ## 🌐 Socials:
